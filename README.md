@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @aeropress101
+- 👀 I’m interested in coffee
+- 🌱 I’m currently learning roasting
+- 💞️ I’m looking to collaborate on reciving recipes
+- 📫 How to reach me @jaycevdl
